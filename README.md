@@ -1,5 +1,5 @@
 - 👋 Hi, I’m @Edneil-Soriano
-- 🌱 I’m currently studying applied physics at the University of the Philippines-Diliman
+- 🌱 I’m currently studying Applied Physics at the University of the Philippines-Diliman
 - 📫 You can message me at eesoriano1@up.edu.ph or esoriano@nip.upd.edu.ph
 
 <!---
